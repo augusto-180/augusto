@@ -1,2 +1,4 @@
 # augusto
-https://tenor.com/pt-BR/view/ronaldo-vestário-dançando-2002-gif-11113128
+
+Ronaldo Vestário Dançando GIF - Ronaldo Vestário Dançando 2002 GIFs
+● GIF SD
